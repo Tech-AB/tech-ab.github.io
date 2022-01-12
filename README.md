@@ -1,1 +1,0 @@
-# tech-ab.github.io
